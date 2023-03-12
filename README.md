@@ -1,7 +1,7 @@
-### Hi there, I'm Nia0Z aka Nia
+### Hi there, I'm Nia
 
-## I'm a student, I am going to studying Nursing at Uni
+## I'm a student
 
-- 🌱 Light Indepedent reactions>>
-- 👀 I’m interested in learning how to use Scratch
+- 🌱 Light Indepedent reactions<<
+- 👀 
 - 🐶 Cats are superior
