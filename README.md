@@ -3,5 +3,5 @@
 ## I'm a student
 
 - 🌱 Light Indepedent reactions<<
-- 👀 I applaud anyone whoever tries to learn coding 
+- 👀 I applaud anyone who tries to learn coding 
 - 🐶 Cats are superior
